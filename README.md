@@ -1,1 +1,1 @@
-# ajrush.github.io
+# one-trick.github.io
